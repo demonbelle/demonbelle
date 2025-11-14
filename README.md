@@ -10,7 +10,7 @@
 
 <p align="center" 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Satisfy&size=23&duration=2500&pause=150&color=661306&vCenter=true&repeat=false&width=435&lines=%22I'll+just+have+to+resort+to+my+impeccable+improv+skills.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Satisfy&size=18&duration=2500&pause=150&color=661306&vCenter=true&repeat=false&width=435&lines=%22I'll+just+have+to+resort+to+my+impeccable+improv+skills.%22)](https://git.io/typing-svg)
 </p>
 
 <div align="center">
