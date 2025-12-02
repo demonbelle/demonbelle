@@ -1,7 +1,7 @@
 ## 𓂃⟡ ݁ ꒰ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ꒱ ⸝⸝  .ᐟ . 
 
 <div align="center">
-  <img src="https://i.makeagif.com/media/2-21-2024/H6eXhL.gif" />
+  <img src="https://64.media.tumblr.com/45ecb2a03dedc8a3c2995030f757fffb/02172a65873469e0-78/s1280x1920/d854c0df9e34ac66e8ac8f15fb0319cfdefef6ec.gifv" />
 </div>
 
 <div align="center">
@@ -10,7 +10,8 @@
 
 <p align="center" 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Satisfy&size=18&duration=2500&pause=150&color=661306&vCenter=true&repeat=false&width=435&lines=%22I'll+just+have+to+resort+to+my+impeccable+improv+skills.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=31F3F2&repeat=false&width=503&height=100&lines=As+long+as+I+wipe+that+smile+off+Alastor's+fucking+face...+I+don't+care+WHAT+happens.)](https://git.io/typing-svg)
+
 </p>
 
 <div align="center">
@@ -19,28 +20,28 @@
 
 <p align="center">
 ${\textsf{
-\color{#ba2356}Call\ Me\ Kryptic\ }}
+\color{#952144}Call\ Me\ Kryptic\ }}
 $
 </p>
 
 <p align="center">
 ${\textsf{
-\color{#6e0000}INSP\ -\ Minor\ -\ Taken}}
+\color{#31f3f2}INSP\ -\ Minor\ -\ Taken}}
 $
 </p>
 
 <div align="center">
-  <img src="https://i.makeagif.com/media/2-21-2024/8mHDF9.gif" />
+  <img src="https://media1.tenor.com/m/Oer1JIfsCjQAAAAC/alastor-vox.gif" />
 </div>
 
 <p align="center">
 ${\textsf{
-\color{#ba2356}Write\ In\ My\ Atabook\ }}
+\color{#952144}Write\ In\ My\ Atabook\ }}
 $
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=demonbelle&color=6e0000" />
+  <img src="https://komarev.com/ghpvc/?username=demonbelle&color=0d0c37" />
 </p>
 <!--
 **demonbelle/demonbelle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
