@@ -1,47 +1,39 @@
 ## 𓂃⟡ ݁ ꒰ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ꒱ ⸝⸝  .ᐟ . 
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/45ecb2a03dedc8a3c2995030f757fffb/02172a65873469e0-78/s1280x1920/d854c0df9e34ac66e8ac8f15fb0319cfdefef6ec.gifv" />
-</div>
-
-<div align="center">
-⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
-</div>
-
-<p align="center" 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=31F3F2&repeat=false&width=503&height=100&lines=As+long+as+I+wipe+that+smile+off+Alastor's+fucking+face...+I+don't+care+WHAT+happens.)](https://git.io/typing-svg)
-
-</p>
-
-<div align="center">
-⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
+  <img src="https://64.media.tumblr.com/dd62eb00eede0c4d4f029b58829475e8/968434b7d940c3a2-d7/s2048x3072/1fe2f85f67dae26980de678bf72b4cac26c51639.pnj" />
 </div>
 
 <p align="center">
 ${\textsf{
-\color{#952144}Call\ Me\ Kryptic\ }}
+\color{#4391be}Kryptic/Kaido ... Minor ... Vox Enthusist ... I LOVE my bf}}
 $
 </p>
 
 <p align="center">
 ${\textsf{
-\color{#31f3f2}INSP\ -\ Minor\ -\ Taken}}
+\color{#1f5484}I have a severe obsession over Animated Men/Woman...}}
 $
 </p>
 
+<p align="center">
+${\textsf{
+\color{#4391be}Please go write in my Atabook}}
+$
+</p>
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=demonbelle&color=499bc7" />
+</p>
+
 <div align="center">
-  <img src="https://media1.tenor.com/m/Oer1JIfsCjQAAAAC/alastor-vox.gif" />
+  <img src="https://64.media.tumblr.com/c30514bd7532c6b1c3ca8c90b6a866ac/64fb1ad49cc70621-77/s2048x3072/23399993464064be7219ab5118857a0614809d4f.pnj" />
 </div>
 
 <p align="center">
 ${\textsf{
-\color{#952144}Write\ In\ My\ Atabook\ }}
+\color{#4391be}both graphics are made by me hehe}}
 $
-</p>
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=demonbelle&color=0d0c37" />
 </p>
 <!--
 **demonbelle/demonbelle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
