@@ -1,4 +1,3 @@
-## 𓂃⟡ ݁ ꒰ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ꒱ ⸝⸝  .ᐟ . 
 
 <div align="center">
   <img src="https://64.media.tumblr.com/dd62eb00eede0c4d4f029b58829475e8/968434b7d940c3a2-d7/s2048x3072/1fe2f85f67dae26980de678bf72b4cac26c51639.pnj" />
