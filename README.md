@@ -11,7 +11,7 @@ $
 
 <p align="center">
 ${\textsf{
-\color{#1f5484}I have a severe obsession over Animated Men/Woman...}}
+\color{#1f5484}04/02/24 - I love my bf so much guys... I'm also not online... heh >:3 }}
 $
 </p>
 
