@@ -11,13 +11,19 @@ $
 
 <p align="center">
 ${\textsf{
-\color{#1f5484}04/02/24 - I love my bf so much guys... I'm also not online... heh >:3 }}
+\color{#1f5484}04/02/24 - I love my bf so much guys... He's so sweet too me }}
 $
 </p>
 
 <p align="center">
 ${\textsf{
 \color{#4391be}Please go write in my Atabook}}
+$
+</p>
+
+<p align="center">
+${\textsf{
+\color{#1f5484} 10/24/23 ... I miss you🕊️ }}
 $
 </p>
 
