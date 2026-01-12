@@ -5,7 +5,7 @@
 
 <p align="center">
 ${\textsf{
-\color{#4391be}Kryptic/Kaido ... Minor ... Vox Enthusist ... I LOVE my bf}}
+\color{#4391be}Kryptic/Kaido/Koolaid ... Minor ... Vox Enthusist ... I LOVE my bf}}
 $
 </p>
 
